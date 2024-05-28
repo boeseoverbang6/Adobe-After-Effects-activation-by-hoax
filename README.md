@@ -1,0 +1,1 @@
+# Adobe-After-Effects-activation-by-hoax
